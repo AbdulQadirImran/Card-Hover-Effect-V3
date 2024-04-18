@@ -1,1 +1,1 @@
-# Card Hover Effect V3 💳🖱️🤕💭🤓
+# Card Hover Effect V3 💳🖱️🤕💭
